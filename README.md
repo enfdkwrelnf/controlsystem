@@ -1,0 +1,5 @@
+![p2 7](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/84b95a2e-2b27-4f1f-94a3-9bf6cbca2a31)
+![p2 12](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/1824f2ee-6c70-4b8c-880a-e47899e5467c) 
+![p2 15](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/46a3107c-e959-4f49-a899-c7040d35eb14)
+![p2 26](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/c93a16d0-3fdc-471b-97fc-65df423de4db)
+![p2 37](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/67efabdb-1610-4a42-9ab4-90af70b07686)
