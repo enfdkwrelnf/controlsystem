@@ -4,5 +4,6 @@
 ![P3 5](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/5fecb47d-7e4c-4094-ace5-c0e40a20ecb1)
 ![P3 12(hand)](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/bbaf1418-5288-4aa5-863b-dee42eeefa46)
 ![p3 12](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/c1bc04f6-48b4-4f95-a097-89349e6eb9d0)
+![p3 12(2)](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/af6413e6-dcc9-4349-a827-f6747552c905)
 ![p3 17(hand)](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/e6ed1092-55d3-4cb8-9da8-fd5fa47428f4)
 ![p3 17](https://github.com/enfdkwrelnf/controlsystem/assets/129135047/43b2968f-f01f-49ee-9924-657459797250)
